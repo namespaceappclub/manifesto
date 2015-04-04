@@ -1,1 +1,1 @@
-[Lasana Murray](http://trinistorm.og) - Sofware Developer, Quenk Technologies
+[Lasana Murray](http://trinistorm.org) - Sofware Developer, Quenk Technologies
